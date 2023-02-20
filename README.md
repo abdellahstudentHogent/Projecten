@@ -1,1 +1,1 @@
-"Projecten die ik doe in mijn vrije tijd" 
+Projecten die ik doe in mijn vrije tijd
